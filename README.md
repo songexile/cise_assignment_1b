@@ -55,7 +55,7 @@ Glenn Neil
 <br>
 Miguel Emmara
 <br>
-Otis Jay
+Otis Wales
 <br>
 Munish Kumar
 
